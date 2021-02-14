@@ -1,0 +1,1 @@
+# rovnice_s_absolutni_hodnotou
